@@ -13,3 +13,7 @@ Project code link:https://drive.google.com/drive/folders/1C0KEY0bWHB7DBKa4POfOgy
 
 
 Project Templates: https://drive.google.com/drive/folders/1B_QJCLCk_ibOBJ1ZVX0n_WnXi4sokNlM?usp=sharing
+
+
+
+Project Video Demo: https://drive.google.com/file/d/1R_5ERy_RJ86jlSc28-hM47k7UuO4CEgZ/view?usp=sharing
