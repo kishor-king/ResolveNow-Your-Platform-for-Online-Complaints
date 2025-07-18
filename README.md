@@ -12,7 +12,7 @@ Project code link:https://drive.google.com/drive/folders/1C0KEY0bWHB7DBKa4POfOgy
 
 
 
-Project Templates: https://drive.google.com/drive/folders/1B_QJCLCk_ibOBJ1ZVX0n_WnXi4sokNlM?usp=sharing
+Project Templates: https://drive.google.com/drive/folders/1ffHshKuFd7sSE79d_9diD_Mlxqi7PT4j?usp=sharing
 
 
 
